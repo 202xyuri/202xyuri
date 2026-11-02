@@ -19,16 +19,16 @@
 
    </details>
    
-   ${\textsf{\color{#E1CBC3}  . ۫ ꣑ৎ   .  🪽 ⊹ ࣪ ˖}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/noli)
+   ${\textsf{\color{#FAFFDC}iwanttogrim}}$ [新book](https://pwned.atabook.org/) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/noli)
 
    <details>
-  <summary> ${\textsf{\color{#E1CBC3}friends}}$ </summary>
+  <summary> ${\textsf{\color{#FFFFFF}oomfs list}}$ </summary>
      
-${\textsf{\color{#974BC9}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
+${\textsf{\color{#FAFFDC}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
 
-${\textsf{\color{#5E9DAE}ro7loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
+${\textsf{\color{#FF9BBF}ro7loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
 
-friends! :  MY GOAT SINCE DAY 1 [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) 
+${\textsf{\color{#88C4F8}Your beautiful ♡}}$  :  MY GOAT SINCE DAY 1 [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) 
 
 shout out to paw, pon!
 
