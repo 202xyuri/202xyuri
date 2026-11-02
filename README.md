@@ -26,9 +26,9 @@
      
 ${\textsf{\color{#FAFFDC}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
 
-${\textsf{\color{#FF9BBF}ro9loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@reenzzsh](https://github.com/reenzzsh) [@clockworkclover](https://github.com/clockworkclover) scar
+${\textsf{\color{#FF9BBF}ro9loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@reenzzsh](https://github.com/reenzzsh) [@clockworkclover](https://github.com/clockworkclover) [@deviousduoz](https://github.com/deviousduoz)
 
-${\textsf{\color{#88C4F8}Oomfs ♡}}$  :  MY GOAT SINCE DAY 1 [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) 
+${\textsf{\color{#88C4F8}Oomfs ♡}}$  : [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) [@
 
 shout out to paw, pon!
 
