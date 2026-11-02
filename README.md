@@ -26,7 +26,7 @@
      
 ${\textsf{\color{#FAFFDC}casinolings}}$: [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@deviousduoz](https://github.com/deviousduoz) [@clockworkclover](https://github.com/clockworkclover) scar (couldn't find your github) 
 
-${\textsf{\color{#FF9BBF}ro9loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@reenzzsh](https://github.com/reenzzsh) [@clockworkclover](https://github.com/clockworkclover) [@deviousduoz](https://github.com/deviousduoz)
+${\textsf{\color{#FF9BBF}ro9loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) [@reenzzsh](https://github.com/reenzzsh) [@clockworkclover](https://github.com/clockworkclover) [@deviousduoz](https://github.com/deviousduoz) scar
 
 ${\textsf{\color{#88C4F8}Oomfs ♡}}$  : [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) [@LV-VL4](https://github.com/LV-VL4) [@raysinet-tea](https://github.com/raysinet-tea) [@sodapackyaoi](https://github.com/sodapackyaoi) 
 
