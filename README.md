@@ -1,14 +1,14 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔&base=6767676767)
+  ![](https://komarev.com/ghpvc/?username=seildirectory&color=86C0F3&label=˖.𖥔&base=6767676767)
   
-  ![](https://file.garden/atuKBjXGIq4-Yqe6/Untitled248_20261102224502.png)
+  ![](https://file.garden/atuKBjXGIq4-Yqe6/Untitled250_20261102225142.png)
 
 <br>  
   <table>
     <tr>
       <td>
-    ${\textsf{\color{#E1CBC3}Johnny}}$ ${\textsf{\color{#CFB3CC}don't leave}}$ ${\textsf{\color{#5E9DAE}me,}}$ ${\textsf{\color{#974BC9}you said}}$ ${\textsf{\color{#410A7F}you'd love}}$ ${\textsf{\color{#290852}me forever♡}}$
+    ${\textsf{\color{#FFFFFF}Johnny}}$ ${\textsf{\color{#FAFFDC}don't leave}}$ ${\textsf{\color{#FF9BBF}me,}}$ ${\textsf{\color{#88C4F8}you said}}$ ${\textsf{\color{#FC5894}you'd love}}$ ${\textsf{\color{#3E001C}me forever♡}}$
 </td>
     </tr>
   </table>
