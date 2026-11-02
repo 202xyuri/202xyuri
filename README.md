@@ -28,7 +28,7 @@ ${\textsf{\color{#FAFFDC}casinolings}}$: [@casino-flush](https://github.com/casi
 
 ${\textsf{\color{#FF9BBF}ro7loxians sharing a restroom stall}}$: [@pwppy](https://github.com/pwppy) [@healrr](https://github.com/healrr) [@casino-flush](https://github.com/casino-flush) [@prizeflush](https://github.com/prizeflush) overseer
 
-${\textsf{\color{#88C4F8}Your beautiful ♡}}$  :  MY GOAT SINCE DAY 1 [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) 
+${\textsf{\color{#88C4F8}Oomfs ♡}}$  :  MY GOAT SINCE DAY 1 [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) 
 
 shout out to paw, pon!
 
