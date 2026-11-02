@@ -2,7 +2,7 @@
   
   ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔&base=6767676767)
   
-  ![](https://files.catbox.moe/rrmw6i.png)
+  ![](https://file.garden/atuKBjXGIq4-Yqe6/Untitled248_20261102224502.png)
 
 <br>  
   <table>
