@@ -30,7 +30,7 @@ ${\textsf{\color{#FF9BBF}ro9loxians sharing a restroom stall}}$: [@pwppy](https:
 
 ${\textsf{\color{#88C4F8}Oomfs ♡}}$  : [@deathdelivery](https://github.com/deathdelivery) [@glistenn](https://github.com/glistenn) [@infinitelygrey](https://github.com/infinitelygrey) [@raddogs](https://github.com/raddogs) [@emariyaoi](https://github.com/emariyaoi) [@LV-VL4](https://github.com/LV-VL4) [@raysinet-tea](https://github.com/raysinet-tea) [@sodapackyaoi](https://github.com/sodapackyaoi) 
 
-shout out to paw, pon!
+shout out to greennames, paw, pon!
 
 <img width="228" height="322" alt="1000112344" src="https://github.com/user-attachments/assets/54753708-7125-4255-939a-ae163969e057" />
 <img width="242" height="113" alt="1000112343" src="https://github.com/user-attachments/assets/667cc4ea-d77b-4511-b7a0-7e44537088b1" />
