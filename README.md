@@ -8,7 +8,7 @@
   <table>
     <tr>
       <td>
-    ${\textsf{\color{#FFFFFF}Johnny}}$ ${\textsf{\color{#FAFFDC}don't leave}}$ ${\textsf{\color{#FF9BBF}me,}}$ ${\textsf{\color{#88C4F8}you said}}$ ${\textsf{\color{#FC5894}you'd love}}$ ${\textsf{\color{#3E001C}me forever♡}}$
+    ${\textsf{\color{#FFFFFF}Your beautiful ♡}}$ ${\textsf{\color{#FAFFDC}your}}$ ${\textsf{\color{#FF9BBF}full}}$ ${\textsf{\color{#88C4F8}of}}$ ${\textsf{\color{#FC5894}shit}}$ ${\textsf{\color{#3E001C}!}}$
 </td>
     </tr>
   </table>
