@@ -15,7 +15,7 @@
 
 <details>
   <summary> ${\textsf{\color{#FFFFFF}DNI}}$ </summary>
-   ${\textsf{\color{#E1CBC3}Proship/Darkship  }}$ ${\textsf{\color{#CFB3CC}T.R.A.S.H }}$ ${\textsf{\color{#5E9DAE}Radqueers}}$ ${\textsf{\color{#974BC9}Rblx myth fans}}$ ${\textsf{\color{#410A7F}have common sense !}}$
+   ${\textsf{\color{#FAFFDC}Proship/Darkship}}$  ${\textsf{\color{#FF9BBF}T.R.A.S.H }}$ ${\textsf{\color{#88C4F8}Radqueers}}$ ${\textsf{\color{#FC5894}Rblx myth fans}}$ ${\textsf{\color{#3E001C}have common sense !}}$
 
    </details>
    
