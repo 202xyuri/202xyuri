@@ -4,7 +4,7 @@
   
   ![](https://file.garden/atuKBjXGIq4-Yqe6/Untitled250_20261102225142.png)
 
-${\color{#6b4127}\text{text}}$
+${\color{#6b4127}\text{LIKE THIS BRO}}$
 
 <br>  
   <table>
