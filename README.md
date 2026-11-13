@@ -1,6 +1,6 @@
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=seildirectory&color=4B89BF&label=˖.𖥔&base=6767676767)
+  ![](https://komarev.com/ghpvc/?username=seildirectory&color=410A7F&label=˖.𖥔&base=6767676767)
   
 ![](https://file.garden/atuKBjXGIq4-Yqe6/ezgif.com-gif-maker%20(2).gif)
 
