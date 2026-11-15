@@ -9,7 +9,7 @@
 
 <details>
   <summary> <img src="https://file.garden/atuKBjXGIq4-Yqe6/Untitled275_20261115090810.png" width="100"> </summary>
-    wip <br>
+    $${\color{#5E9DAE}sjsjsjsjsjs}$$   
   </details>
 
   </p>
