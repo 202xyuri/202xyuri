@@ -9,7 +9,7 @@
 
 <details>
   <summary> <img src="https://file.garden/atuKBjXGIq4-Yqe6/Untitled275_20261115090810.png" width="100"> </summary>
-    $${\color{#D5BCC8}rob10xians \space sharing a restroom stall}$$ : ![casino-flush](https://github.com/casino-flush)  
+    $${\color{#D5BCC8}rob10xians \space sharing \space a \space restroom \space stall}$$ : ![casino-flush](https://github.com/casino-flush)  
   </details>
 
   </p>
