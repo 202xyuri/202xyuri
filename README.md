@@ -2,7 +2,7 @@
   
   ![](https://komarev.com/ghpvc/?username=202xyuri&color=FD7EA6&label=˖.𖥔&base=6767676767)
   
-![](https://file.garden/atuKBjXGIq4-Yqe6/1000116059_20261115120234.png)
+![](https://file.garden/atuKBjXGIq4-Yqe6/1000116048_20261115121501.png)
 
 [<img src="https://file.garden/atuKBjXGIq4-Yqe6/Untitled275_20261115120941.png" width="100">](https://pwned.atabook.org/) 
 [<img src="https://file.garden/atuKBjXGIq4-Yqe6/Untitled275_20261115121023.png" width="100">](https://fluffle.cc/noli)
